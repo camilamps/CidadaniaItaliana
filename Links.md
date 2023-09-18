@@ -1,7 +1,7 @@
 Em ordem alfabética
 
 Consulados: 
-•	Consulado da Itália em Belo Horizonte: Minas Gerais. https://consbelohorizonte.esteri.it/pt/
+•	Consulado da Itália em Belo Horizonte: Minas Gerais. [link text]https://consbelohorizonte.esteri.it/pt/
 •	Consulado Geral da Itália em Curitiba: Paraná e Santa Catarina.
 •	Consulado Geral da Itália em Porto Alegre: Rio Grande do Sul. 
 •	Consulado da Itália em Recife: Alagoas, Bahia, Ceará, Maranhão, Paraíba, Pernambuco, Piauí, Rio Grande do Norte e Sergipe.
